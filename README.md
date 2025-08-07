@@ -1,1 +1,1 @@
-### Hi there , I'm Alvira👋
+### Hi there , I'm Alvira👋, I am Data Scientist !!
